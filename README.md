@@ -11,7 +11,7 @@
 
 - 📫 How to reach me **agadajoshua@icloud.com**
 
-- ⚡ Fun fact **I love smoothies**
+- ⚡ Fun fact: **I love smoothies**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
